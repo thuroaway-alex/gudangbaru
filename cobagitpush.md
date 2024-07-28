@@ -1,0 +1,1 @@
+Kalau kalian melihat aku, aku berasal dari push an terminal!
