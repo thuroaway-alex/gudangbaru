@@ -1,0 +1,1 @@
+Halo world kalo aku ada di repositori, maka aku berhasil ngepush.
